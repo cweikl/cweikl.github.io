@@ -9,3 +9,4 @@ Erst zum Schluss  erkennt er seine Verfehlungen und Versäumnisse; todkrank will
 * streng rational
 * technisch orientiert
 * todkrank zum Lebenswandel
+* emotional verbunden
