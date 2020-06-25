@@ -17,4 +17,4 @@ Erst zum Schluss  erkennt er seine Verfehlungen und Versäumnisse; todkrank will
 
 ## Bild des Walter Faber
 
-<img src="https://www.google.com/url?sa=i&url=http%3A%2F%2Fessdeutschabi.blogspot.com%2F2013%2F11%2Fhomo-faber-1.html&psig=AOvVaw3GiAabrGGiu-NuufinLccl&ust=1593202972171000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLCC0tvlneoCFQAAAAAdAAAAABAE"/>
+<img src="https://www.google.com/url?sa=i&url=http%3A%2F%2Fessdeutschabi.blogspot.com%2F2013%2F11%2Fhomo-faber-1.html&psig=AOvVaw3GiAabrGGiu-NuufinLccl&ust=1593202972171000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLCC0tvlneoCFQAAAAAdAAAAABAE" />
