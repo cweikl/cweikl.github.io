@@ -7,3 +7,4 @@ Der Titel des Romans setzt die Hauptfigur namens Walter Faber in Bezug zum [anth
 * streng rational
 * technisch orientiert
 * todkrank zum Lebenswandel
+* emotional verbunden
