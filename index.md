@@ -10,3 +10,7 @@ Erst zum Schluss  erkennt er seine Verfehlungen und Versäumnisse; todkrank will
 * technisch orientiert
 * todkrank zum Lebenswandel
 * emotional verbunden
+
+## Zitat Walter Faber
+
+> Alleinsein ist der einzigmögliche Zustand für mich
