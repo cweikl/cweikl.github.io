@@ -14,3 +14,7 @@ Erst zum Schluss  erkennt er seine Verfehlungen und Versäumnisse; todkrank will
 ## Zitat Walter Faber
 
 > Alleinsein ist der einzigmögliche Zustand für mich
+
+## Bild des Walter Faber
+
+<img src="https://www.3sat.de/assets/homo-faber-bild-102~1280x720?cb=1571258303082" />
